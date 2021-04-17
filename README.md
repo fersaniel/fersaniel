@@ -21,5 +21,5 @@ Here are some ideas to get you started:
 - Instagram: https://www.instagram.com/fersaniel/ 
 - Twitter: https://twitter.com/fersaniel
 - Facebook: https://www.facebook.com/fersaniel
-- Tiktok: tiktok.com/@fersaniel
+- Tiktok: https://www.tiktok.com/@fersaniel
 - Twitch: https://www.twitch.tv/fersaniel
