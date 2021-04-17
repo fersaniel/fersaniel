@@ -13,3 +13,11 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ⚡La cuenta que uso es danielfernandezsanchez.
+
+###REDES
+
+Instagram: https://www.instagram.com/fersaniel/
+Twitter: https://twitter.com/fersaniel
+Facebook: https://www.facebook.com/fersaniel
+Tiktok: tiktok.com/@fersaniel
+Twitch: https://www.twitch.tv/fersaniel
