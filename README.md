@@ -12,18 +12,18 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-⚡La cuenta que uso es danielfernandezsanchez.
+⚡I use danielfernandezsanchez.
 
 - Github: https://github.com/danielfernandezsanchez
 
-💼Job.
-
-Linkedin: https://linkedin.com/in/daniel-fernandez-sanchez
-
-💬 Redes.
+💬 Social.
 
 - Instagram: https://www.instagram.com/fersaniel/ 
 - Twitter: https://twitter.com/fersaniel
 - Facebook: https://www.facebook.com/fersaniel
 - Tiktok: https://www.tiktok.com/@fersaniel
 - Twitch: https://www.twitch.tv/fersaniel
+
+💼Job.
+
+- Linkedin: https://linkedin.com/in/daniel-fernandez-sanchez
