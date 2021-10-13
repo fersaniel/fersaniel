@@ -23,3 +23,7 @@ Here are some ideas to get you started:
 - Facebook: https://www.facebook.com/fersaniel
 - Tiktok: https://www.tiktok.com/@fersaniel
 - Twitch: https://www.twitch.tv/fersaniel
+
+💼Trabajo.
+
+Linkedin: https://linkedin/in/daniel-fernandez-sanchez
