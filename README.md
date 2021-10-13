@@ -16,6 +16,10 @@ Here are some ideas to get you started:
 
 - Github: https://github.com/danielfernandezsanchez
 
+💼Trabajo.
+
+Linkedin: https://linkedin/in/daniel-fernandez-sanchez
+
 💬 Redes.
 
 - Instagram: https://www.instagram.com/fersaniel/ 
